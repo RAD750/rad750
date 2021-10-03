@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![immagine](https://user-images.githubusercontent.com/12469744/135750386-9af11074-589b-4484-8a25-337e1d008086.png)
+
 Just a geology student that pretends to actually know something about "information technology". 🏳️‍🌈
 
 - 🔭 I’m currently working on [RGBCraft](https://www.rgbcraft.com/).
