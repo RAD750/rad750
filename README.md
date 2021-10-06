@@ -5,7 +5,8 @@ Just a geology student that pretends to actually know something about "informati
 - 🔭 I’m currently working on [RGBCraft](https://www.rgbcraft.com/).
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Loves submarines. And also geology, yeah. Oh, and mountains.
-- 🇪🇺 Living in Europe
+- 🇪🇺 
+- Loves Siberia
 
 100% guaranteed friend of :scotland: Gaelic - Alba gu bràth
 
