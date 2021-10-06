@@ -6,7 +6,7 @@ Just a geology student that pretends to actually know something about "informati
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Loves submarines. And also geology, yeah. Oh, and mountains.
 - 🇪🇺 
-- Loves Siberia
+- 🛤️
 
 100% guaranteed friend of :scotland: Gaelic - Alba gu bràth
 
